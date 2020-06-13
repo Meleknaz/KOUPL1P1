@@ -1,1 +1,1 @@
-BU PROJEDE KOD NAMINA BÝR ÞEY ARAMAYINIZ.
+The codes of this project have not been added yet.
